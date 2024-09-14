@@ -1,1 +1,5 @@
-# Nuggetboi-scripts
+don't skid niggers
+
+
+
+(kys tsb devs)
